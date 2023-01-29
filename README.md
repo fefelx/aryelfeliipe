@@ -1,8 +1,8 @@
-- 👑hiii, I’m Aryel :)
+- 👑hiii, I’m felzinho :)
 - 🏐 i love volleyball...
 - 🎕 White flowers >>>
 - ∞ 888
-- 📧 @aryelfeliipe ^_^
+- 📧 @fefel.x ^_^
 
 <!---
 aryelfeliipe/aryelfeliipe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
